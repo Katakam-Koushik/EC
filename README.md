@@ -1,0 +1,1 @@
+[MINI_PROJECT_REPORT_FORMAT-2000.pdf](https://github.com/Katakam-Koushik/EC/files/14052772/MINI_PROJECT_REPORT_FORMAT-2000.pdf)
